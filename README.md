@@ -17,7 +17,7 @@ En esta misión solo puedes perder 0 o 1000 HP. Si ENTREGAS las misión, conserv
 
 _¡Por supuesto que lo puedes lograr!_
 
-*Si tienes dudas puedes buscarme por las mañanas en mi oficina y con gusto te ayudo.*
+*Si tienes dudas, sobre esta misión o tu proyecto, puedes buscarme por las mañanas en mi oficina y con gusto te ayudo.*
 
 ### Los 10 primeros alumnos que entreguen la misión obtendrán **200 XP**.
 
